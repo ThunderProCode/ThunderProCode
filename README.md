@@ -3,5 +3,4 @@
 
 > I'm always learnig.
 
-🇭🇳 Hector Acosta . 🚀 Backend engineer
-
+🇭🇳 Hector Acosta . 🚀
